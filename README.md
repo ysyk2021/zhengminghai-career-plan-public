@@ -5,6 +5,9 @@
 不要躺平，像我这样的普通人都可以“成功”，为什么很多比我学历高的人还在悲观。
 
 - 微信平台阅读 [https://mp.weixin.qq.com/s/_358l2RhA0DIcnigAXFWWA](https://mp.weixin.qq.com/s/_358l2RhA0DIcnigAXFWWA)
+- [下载PDF版本](https://github.com/ysyk2021/zhengminghai-career-plan-public/releases)
+- [下载DOCX版本](https://github.com/ysyk2021/zhengminghai-career-plan-public/releases)
+- [下载EPUB版本](https://github.com/ysyk2021/zhengminghai-career-plan-public/releases)
 
 以下为正文
 
